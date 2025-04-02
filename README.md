@@ -1,1 +1,1 @@
-# SunnuKyrgyz
+# SunnyKyrgyz
